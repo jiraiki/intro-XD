@@ -11,7 +11,7 @@ she / her / angel / pup
 
 yumeshipper + multishipper
 
-aroace , androsexual biromantic (yes i DO have a crush on someone. Aroace means "little to no attraction".)
+bigender , androsexual biromantic (yes i DO have a crush on someone. if u def couldn't tell)
 
 
 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒
