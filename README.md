@@ -31,7 +31,7 @@ does not believe in fictosexuals / fictionkin terms
 
 tr*mp believers
 
-mizuboy believes
+mizuboy believers
 
 p*dos / sexualises minors.
 
