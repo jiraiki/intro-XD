@@ -1,4 +1,5 @@
-(๑ᵔ⤙ᵔ๑)
+<img width="2048" height="457" alt="1000184304" src="https://github.com/user-attachments/assets/4b980f6e-0cc2-4764-a3e2-0f90fa4ecfcd" />
+
 
 
 kim / inu / jira
@@ -11,7 +12,7 @@ she / her / angel / pup
 
 yumeshipper + multishipper
 
-bigender , androsexual biromantic (yes i DO have a crush on someone. if u def couldn't tell)
+bigender , almondsexual (yes i DO have a crush on someone. if u def couldn't tell)
 
 
 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒
@@ -61,8 +62,16 @@ my texting style might be annoying for some, I also sometimes curse, so if ur un
 
 just because I ship my yumes with others doesn't mean i don't like them ok... 👀
 
-i'm diagnosed with autism (leaning towards abnormal flat speech & noise sensitivity) and suspected schizophrenia.
+i'm diagnosed with autism (leaning towards abnormal flat speech & noise sensitivity) + literally nothing else aha
 
 JUST because I like yaoi n stuff DOES NOT mean i Support jinx or whatever..
-<img width="512" height="512" alt="1000171535" src="https://github.com/user-attachments/assets/eacc219e-7b43-40ad-80b9-48f70e6a0d94" />
+
+<img width="2048" height="1456" alt="1000184315" src="https://github.com/user-attachments/assets/fde062cf-f072-4015-b420-03d0123ba127" />
+
+
+<img width="2048" height="457" alt="1000184305" src="https://github.com/user-attachments/assets/342fd7d7-8c07-4efc-a110-cbc24c98cde8" />
+
+<img width="2048" height="1456" alt="1000184316" src="https://github.com/user-attachments/assets/aa4ee38b-9c4a-4514-8c6f-eb2a7f3320fe" />
+
+-omg komahina yaoi
 
