@@ -19,7 +19,7 @@ bigender , almondsexual (yes i DO have a crush on someone. if u def couldn't tel
 
 i have social anxiety and insomnia. Yes I will 99% NOT interact with you but probably secretly admire you from afar (yes i like ur pony skins)
 
-i do use fictionkin terms and have a repository regarding to many of them. I am soulbound/ed to Isagi. I prefer doubles not to interact (expect for SOME of my f/o's / yumeships) 
+i do use fictionkin terms and have a repository regarding to many of them.. I prefer doubles not to interact (expect for SOME of my f/o's / yumeships). (If u think yumeshipping is delusional dni pls 😣)
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵
 
@@ -65,6 +65,23 @@ just because I ship my yumes with others doesn't mean i don't like them ok... �
 i'm diagnosed with autism (leaning towards abnormal flat speech & noise sensitivity) + literally nothing else aha
 
 JUST because I like yaoi n stuff DOES NOT mean i Support jinx or whatever..
+
+I'm super sensetive so **sometimes** i take things to heart!! If that happens, i'll most likely just tell you.
+
+I'm sometimes super sarcastic (i really don't know why, personality just changes 😭) so if i accidentally hurt you in some way, tell me, i'll immediately stop!
+
+- or just generally tell me if i hurt u ok, might end up thinking what i did wrong if someone gives me the silent treatment
+
+also another fact is i never really use dni/dniuf or so unless im really super duper upset. 
+
+You can interact with me, but if your a stranger, i'm mostly akward if we first meet, but i'll eventually warm up to you.
+
+Another thing i've experienced alot is when someone repeats a joke i clearly don't like.. please avoid that.
+
+<img width="736" height="736" alt="1000185417" src="https://github.com/user-attachments/assets/d79d2b08-e61b-4f4b-915d-5d346e0856af" />
+
+
+
 
 <img width="2048" height="1456" alt="1000184315" src="https://github.com/user-attachments/assets/fde062cf-f072-4015-b420-03d0123ba127" />
 
