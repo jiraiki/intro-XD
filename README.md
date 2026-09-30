@@ -79,7 +79,38 @@ You can interact with me, but if your a stranger, i'm mostly akward if we first 
 Another thing i've experienced alot is when someone repeats a joke i clearly don't like.. please avoid that.
 
 If im listening to one of my Songs on my playlist "me and 🐾" it most likely means im daydreaming 'bout 🐾 and would like to be left alone.
-(my moots who follow me on spotify know this!! u can also ask for my spotify ok.)
+(my moots who follow me on spotify know this!! u can also ask for my spotify ok.) or it would be most likely in my name.
+
+<img width="2048" height="570" alt="1000189540" src="https://github.com/user-attachments/assets/c27c20f1-c2c3-4692-9a61-080b5eeda33c" />
+
+
+**BEFORE YOU HATE ON MY YUMESHIP WITH NAGITO JUST BECAUSE I AM A "GIRL"-**
+
+• I Interpretate him as pan. 
+
+• I'm bigender.
+
+• its not CONFIRMED/CANON that he's gay. 
+
+<img width="735" height="490" alt="1000189530" src="https://github.com/user-attachments/assets/9e73d34d-3562-4f84-bffe-b6b93ea0bfbc" />
+answer to this screenshot below 
+<img width="1080" height="1129" alt="1000189531" src="https://github.com/user-attachments/assets/21bbf99b-2e32-4b2b-ad54-9f36819d4139" />
+
+more: 
+<img width="1118" height="557" alt="1000189538" src="https://github.com/user-attachments/assets/016d867f-acc3-467e-b978-b45a0e37e569" />
+here you can see one of his ACTUAL lines.
+next:
+<img width="640" height="359" alt="1000189539" src="https://github.com/user-attachments/assets/e9b209a3-c68f-40dd-9ba9-d36674da4523" />
+"beautiful people"
+that doesn't mean JUST men.
+<img width="1080" height="1824" alt="1000189537" src="https://github.com/user-attachments/assets/418541a0-7bf8-4c8c-bd23-7dcaf3f2fc9c" />
+
+
+• he COULD be pan or also berrisexual. You choose.
+
+• i'm not forcing you to like my yumeship, but i'm just stating this before you hate.
+
+
 
 <img width="736" height="736" alt="1000185417" src="https://github.com/user-attachments/assets/d79d2b08-e61b-4f4b-915d-5d346e0856af" />
 
