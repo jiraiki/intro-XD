@@ -78,6 +78,9 @@ You can interact with me, but if your a stranger, i'm mostly akward if we first 
 
 Another thing i've experienced alot is when someone repeats a joke i clearly don't like.. please avoid that.
 
+If im listening to one of my Songs on my playlist "me and 🐾" it most likely means im dreaming 'bout 🐾 and would like to be left alone.
+(my moots who follow me on spotify know this!! u can also ask for my spotify ok.)
+
 <img width="736" height="736" alt="1000185417" src="https://github.com/user-attachments/assets/d79d2b08-e61b-4f4b-915d-5d346e0856af" />
 
 
